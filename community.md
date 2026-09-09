@@ -53,6 +53,8 @@ A﻿long with our entertainment performers, the festival welcomes a number of lo
 
 **Center for Latin American and Caribbean Studies** 
 
+**Center for Children's Books UIUC**
+
 ![United Way Activity Table](/img/uploads/img_3488.jpg)
 
 ![](/img/uploads/img_3475.jpg)
