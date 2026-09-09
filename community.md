@@ -10,7 +10,7 @@ headerImage: /img/uploads/img_3464.jpg
  {.byline}
 
 
-## Saturday, September 26th,at the  10am -4pm\
+## Saturday, September 26th, 10am - 4pm
 [I-Hotel & Conference Center](https://stayatthei.com/)
 
 See below for the 2026 Schedule of Events, as well as information on our Entertainment and Activity Table hosts this year. 
@@ -33,7 +33,7 @@ See below for the 2026 Schedule of Events, as well as information on our Enterta
 
 [Ballet Folklorico Mitotiani](https://balletfolkloricomitotiani.weebly.com/) is an organization focusing on the cultural aspect of Mexico. Ballet Folklorico has been a long tradition of dancing depending on the different regions of Mexico. The dances include colorful dresses that stem mainly from Jalisco, Nuevo León, Veracruz, Michoacán, Nayarit, Guerrero, Yucatán, San Luis Potosi, and Puebla. Each region developing a different, yet similar style of dancing. For these dances to be heard, heels for women and boots for men have nails on the tip and the heel. This requires a vast range of dancing techniques that we are prepared to show you. Although these physical logistics are important to know, Ballet Folklorico is a cultural enhancement to this campus, bringing lively color to many events that promote Latinx culture. Our mission is to increase a deeper understanding and connection to Latinx culture on campus and demonstrate the broad variety of regions that Mexico has to offer.
 
-### [1st Choice Music Services](https://sites.google.com/site/vcellohedlund/home)[G﻿RMD UIUC](https://www.youtube.com/user/grmduiuc)
+### [G﻿RMD UIUC](https://www.youtube.com/user/grmduiuc)
 
 Gah Rahk Mah Dahng is a Korean Traditional Percussion RSO (Registered Student Organization) at the University of Illinois at Urbana-Champaign. We play a genre called Samulnori, featuring four different instruments. Our songs are passed down orally from generation to generation. Our goal is to spread Korean cultural music through Korean traditional percussion, and to further develop our skills to perform.
 
